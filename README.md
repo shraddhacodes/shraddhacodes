@@ -1,8 +1,9 @@
-## Yoooo !! 
+## Yoooo ✧･ﾟ: *✧･ﾟ:*
+
 
 <img src="https://c.tenor.com/SJpxJsB4P3sAAAAC/wallpaper-aesthetic.gif">
 
-### New Account Alert! 
+### New Account Alert !!
 
 <p> I am a final year student pursuing B.Sc. Applied Statistics and Analytics at NMIMS University. Usually a morning person, I love to code by creating a lofi cafe environment. So I plug in my earphones, listen to some soothing music, sip my matcha tea if you may !? and try to complete my coding assignments as and when I get worked up with project submission deadlines yikes!!! Life is tough man.
 Oh btw this is my new account since I wanted to feel revived in this arena again.
