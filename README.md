@@ -1,7 +1,8 @@
-## Yoooo ✧･ﾟ: *✧･ﾟ:*
+## Yoooo !!
 
 
 <img src="https://c.tenor.com/SJpxJsB4P3sAAAAC/wallpaper-aesthetic.gif">
+
 
 ### New Account Alert !!
 
@@ -16,7 +17,7 @@ Oh btw this is my new account since I wanted to feel revived in this arena again
 
 
 
-Like something and wanna collaborate ? Ping me [here](https://www.linkedin.com/in/shraddha-kodavade-357bb918a/)! 
+Like something and wanna collaborate ? Ping me [here](https://www.linkedin.com/in/shraddha-kodavade-357bb918a/) ✧･ﾟ: *✧･ﾟ:*
 
 <!--
 
