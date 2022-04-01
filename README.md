@@ -1,7 +1,7 @@
 ## Yoooo !!
 
 
-<img src="https://c.tenor.com/SJpxJsB4P3sAAAAC/wallpaper-aesthetic.gif">
+<img src="https://i.pinimg.com/564x/86/2e/2e/862e2ea2f31d88bed55efa3baf461f0f.jpg">
 
 
 ### New Account Alert !!
