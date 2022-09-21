@@ -1,10 +1,9 @@
-## Yoooo !!
+## Hi, I am Majoring in Applied Statistics and Analytics 
 
 
 <img src="https://i.pinimg.com/564x/86/2e/2e/862e2ea2f31d88bed55efa3baf461f0f.jpg">
 
 
-### New Account Alert !!
 
 <p> Accumulating all my projects and coding assignments (throughout my academic years). 
 <br/>
