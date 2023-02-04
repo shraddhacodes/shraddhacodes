@@ -1,11 +1,10 @@
-## Hi, I am Majoring in Applied Statistics and Analytics 
-
+## Coding Archives 
 
 <img src="https://i.pinimg.com/564x/86/2e/2e/862e2ea2f31d88bed55efa3baf461f0f.jpg">
 
 
 
-<p> Accumulating all my projects and coding assignments (throughout my academic years). 
+<p> hi, i m majoring in applied statistics and analytics. 
 <br/>
   
  
